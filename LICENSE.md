@@ -1,4 +1,4 @@
-# 
+# Adobe Photoshop for macOS automatic Panel - plugin support and vector export is the best Adobe Photoshop for macOS panel, featuring plugin support and vector export. Safe,
 
 
 
